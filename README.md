@@ -1,2 +1,2 @@
 # ShitBin
-fakle version of doxbin to ip log a child :skull:
+fakle version of doxbin to ip log a retard :skull:
